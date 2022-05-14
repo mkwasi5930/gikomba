@@ -1,0 +1,2 @@
+# gikomba
+clothing industry
